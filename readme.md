@@ -1,5 +1,5 @@
 Questa è la prima versione
 
-Io scrivo cazzo lungo
+Io scrivo figa stretta
 
 Fine del documento
